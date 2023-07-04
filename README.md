@@ -1,8 +1,8 @@
-# Exynos
+#Buat crack akun mbah lu
 
 
-Welcome
---------|
+##WELCOME
+
 ![](https://media.tenor.com/iVCiM9W7cvYAAAAd/welcome.gif)
 
 <details>
