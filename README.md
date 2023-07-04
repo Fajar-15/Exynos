@@ -1,7 +1,7 @@
-#Buat crack akun mbah lu
+# Buat crack akun mbah lu
 
 
-##WELCOME
+# WELCOME
 
 ![](https://media.tenor.com/iVCiM9W7cvYAAAAd/welcome.gif)
 
